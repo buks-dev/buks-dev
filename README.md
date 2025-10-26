@@ -1,4 +1,4 @@
-## Hi there 👋 Hi there, I'm Osokoya Oluwabukunmi
+## Hi there 👋 , I'm Osokoya Oluwabukunmi
 
 **Data Analyst | Python | SQL | Excel | Power BI | Tableau**
 
