@@ -1,4 +1,4 @@
-# Hi, I'm Osokoya Oluwabukunmi (buks-dev)
+# Hi, I'm Osokoya Oluwabukunmi (Buks)
 
 **Aeronautical & Astronautical Engineering Undergraduate**  
 Kwara State University | 300-Level | Expected Graduation: 2028
